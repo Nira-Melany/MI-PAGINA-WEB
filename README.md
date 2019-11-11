@@ -13,7 +13,7 @@ Vivo en Pedro Carbo, Ecuador
 
 Soy estudiante de la Universidad de Guayaquil estudio la carrera Ingenieria de Software.
  
-Me encantaria terminar mis estudios y poder convertirme una gran Ingenieria, ser experta en programacion
+Me encantaria terminar mis estudios y poder convertirme una gran Ingenieria, ser experta en programacion.
 
 Yo me considero una persona muy amigable, honesta, leal y  buena compañera.
 
