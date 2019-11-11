@@ -17,6 +17,4 @@ Larry L. Constantine es mi mayor inspiracion, es uno de los mejores ingenieros d
 
 Yo me considero una persona muy amigable, honesta, leal y  buena compañera.
 
-Grcias por visitar mi primer sitio web
-
-ADIOS!
+Gracias por visitar mi primer sitio web!
