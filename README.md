@@ -11,7 +11,7 @@ Tengo 18 años
 
 Vivo en Pedro Carbo, Ecuador
 
- Soy estudiante de la Universidad de Guayaquil estudio la carrera Ingenieria de Software.
+Soy estudiante de la Universidad de Guayaquil estudio la carrera Ingenieria de Software.
  
 Me encantaria terminar mis estudios y poder convertirme una gran Ingenieria, ser experta en programacion
 
