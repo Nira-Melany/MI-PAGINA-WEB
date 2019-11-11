@@ -7,7 +7,7 @@ Mi nombre completo es Nira Melany Holguin Bonilla
 
 Tengo 18 años
 
-Vivo en Pedro Carbo, Ecuador.
+Vivo en Pedro Carbo, Ecuador
 
  Soy estudiante de la Universidad de Guayaquil estudio la carrera Ingenieria de Software.
  
